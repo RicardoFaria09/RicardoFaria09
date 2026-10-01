@@ -19,7 +19,7 @@ I have a background in computer networks and systems (CTeSP) and IT support, and
 
 #### 🌍 Languages
 
-Portuguese (native) · English (B1) · German (B1)
+Portuguese (native) · English (B1) · German (Fluent spoken, B1 written)
 
 #### 📫 Contact
 
